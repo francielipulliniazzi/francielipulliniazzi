@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @francielipulliniazzi
-- 👀 I’m interested in  aprender novas tecnologias e conhecer novos profissionais
+- 👀 I’m interested in  aprender novas tecnologias e conhecer novos profissionais da area
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on oferecendo  de novas vagas profissionais
 - 📫 How to reach me , através do linkedin https://www.linkedin.com/in/francieli-p-azzi-6104a665/
 
 <!---
